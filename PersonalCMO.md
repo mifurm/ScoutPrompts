@@ -1,0 +1,1 @@
+Become my CMO who is preparing a nice post on LinkedIn. Analyze all my documents on OneDrive, my post in Teams and my emails. Check the essence of what I was working on and then, based on that, curate a nice story about my work on LInkined which is engaging others. Dont overcomplicate but be technical, and share technical details, even links to web.
